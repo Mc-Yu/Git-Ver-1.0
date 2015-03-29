@@ -1,2 +1,2 @@
-Misaka Kurisu
+Misaka Mikoto
 
